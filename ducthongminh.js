@@ -1,1 +1,1 @@
-cuong ngu
+cuong ngu x2
